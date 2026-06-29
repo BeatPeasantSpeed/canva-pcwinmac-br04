@@ -1,4 +1,4 @@
-# 
+# Exclusive Canva plugins for Mac OS | Official Canva plugins for PC Windows. Featuring paragraph-styles and reference-window — optimized for maximum performance on every platform.
 
 
 
